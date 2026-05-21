@@ -1,1 +1,1 @@
-El doctor Frankenstein dio vida a su creatura.
+El doctor Frankenstein dio vida a su monstruo.
